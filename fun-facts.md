@@ -1,1 +1,1 @@
-If I run AmongUs OS, does that mean it's Asus computer?
+I fixed a busted up PS3 and delided the CPU. Good Times.
